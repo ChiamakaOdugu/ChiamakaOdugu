@@ -6,6 +6,5 @@
 - 🤔 I’m looking for help with breaking technical concepts
 - 💬 Ask me about my learning journey
 - 📫 How to reach me: https:/twitter@enajblack
-- 😄 Pronouns:She/Her
-- 
--->
+- 😄 Pronouns:(She/Her)
+
